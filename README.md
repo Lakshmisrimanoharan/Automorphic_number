@@ -1,1 +1,0 @@
-# Automorphic_number
